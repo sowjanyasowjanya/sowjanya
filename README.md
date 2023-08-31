@@ -1,3 +1,2 @@
 # sowjanya
-hii friends
-how are you 
+hii how are you 
